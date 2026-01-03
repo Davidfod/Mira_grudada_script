@@ -1,1 +1,0 @@
-# Mira_grudada_script
